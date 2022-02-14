@@ -1,5 +1,5 @@
 ---
 layout: post
-title: Welcome!
+title: Hi, welcome!
 ---
 You can change the title above if you want to and then write your content.  
