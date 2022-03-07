@@ -8,7 +8,7 @@ Ines Lenhart is an undergraduate student at California Polithechnic State Univer
 
 ### More Information
 
-In her free time, Ines enjoys being outdoors and exploring, she likes going on walks/hikes and loves spendind time at the beach. Some other activities Ines enjoys are travelling, sports (such as volleyball and snowboarding), camping, and reading.
+In her free time, Ines enjoys being outdoors and exploring, she likes going on walks/hikes and loves spending time at the beach. Some other activities Ines enjoys are travelling, sports (such as volleyball and snowboarding), camping and reading.
 
 ### Contact me
 
